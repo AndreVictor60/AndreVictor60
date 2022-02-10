@@ -1,4 +1,4 @@
-👋 Hi, Je m'appelle Victor, apprenti chez DAWAN Paris 
+👋 Hi Victor, apprenti chez DAWAN Paris 
 
 👀 Mon portfolio arrive à grand pas 🚶‍♂️
 
