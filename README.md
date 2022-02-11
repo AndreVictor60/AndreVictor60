@@ -1,4 +1,6 @@
-👋 Hi Victor, apprenti chez DAWAN Paris 
+👋 Hi Victor, apprenti chez DAWAN Paris jusq'au 21 février 2022,
+
+🎓 Titre professionnel Concepteur Développeur D'applications 2022.
 
 👀 Mon portfolio arrive à grand pas 🚶‍♂️
 
