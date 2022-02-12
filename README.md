@@ -2,7 +2,7 @@
 
 🎓 Titre professionnel Concepteur Développeur D'applications 2022.
 
-👀 Mon portfolio arrive à grand pas 🚶‍♂️
+👀 Mon [portfolio](https://andrevictor60.github.io/portfolio/) arrive à grand pas 🚶‍♂️
 
 📫 Vous pouvez me contacter sur [linkedin](https://www.linkedin.com/in/victor-andr%C3%A9-33b139151/)
 
